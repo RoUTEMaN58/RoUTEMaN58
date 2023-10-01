@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @RoUTEMaN58
+- 👀 I’m interested in TECH
+- 🌱 I’m currently learning C++
+- 💞️ I’m looking to collaborate on Nothing On the Mind at the Moments thannks
+- 📫 How to reach me ...Not Available yet LoL
+- Looking UpwarD for Greater Chances
+- See you In the nearby F*......
